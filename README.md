@@ -1,0 +1,2 @@
+# premium-weightlifting-001-weightlifting-strength-train
+Tired of guessing whether you're actually getting stronger? Stop relying on random notes or apps that lock your data. The Weightlifting &amp; Strength Training Tracker - Notion Template gives you a proven, customizable system to log every rep, set, and weight — and automatically calculates your progressive overload so you never stall again.  This isn't
